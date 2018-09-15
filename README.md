@@ -4,3 +4,4 @@ HELLO I AM JUST EDITING THIS AT WORK BECAUSE I HAVE NO LIFE! IVE BEEN WORKING UN
 weather 31 degrees c
 more weather
 DOOOOODOOOODOOOODLE just figuring things out still! BEAR with me! *bear noises in background*
+still no progress
