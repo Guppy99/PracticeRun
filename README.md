@@ -6,3 +6,4 @@ more weather
 DOOOOODOOOODOOOODLE just figuring things out still! BEAR with me! *bear noises in background*
 still no progress
 It looks like I don't care about the program but I do... Pls help.
+almost
