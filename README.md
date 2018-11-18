@@ -23,3 +23,4 @@ wanna die yet?
 Well
 Salad
 SOS PLS SOME ONE HElP ME
+slight headache on my right. 
