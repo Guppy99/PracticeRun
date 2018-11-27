@@ -25,3 +25,5 @@ Salad
 SOS PLS SOME ONE HElP ME
 slight headache on my right. 
 Thanksgiving! 
+He likes my art!
+or does he...?
