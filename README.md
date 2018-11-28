@@ -27,3 +27,4 @@ slight headache on my right.
 Thanksgiving! 
 He likes my art!
 or does he...?
+BUSY WEEK YET>?
